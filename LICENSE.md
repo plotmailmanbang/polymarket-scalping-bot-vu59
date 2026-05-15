@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with Polymarket ultimate bot: prediction-market-scanning & leverage-trading, the #1 bot. Includes prediction-market-scanning and leverage-trading
 
 
 
